@@ -1,1 +1,1 @@
-# soniprathmesh-soniprathmesh.github.io
+# soniprathmesh.github.io
